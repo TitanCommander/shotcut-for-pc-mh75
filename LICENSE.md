@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Shotcut for PC | Shotcut for Windows plugin with new Plugin for Shotcut for PC | Shotcut for Windows - LUT-support and AI-enhanced-editing. Featuring LUT-support
 
 
 
